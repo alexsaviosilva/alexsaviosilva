@@ -25,8 +25,8 @@ Sou Engenheiro Químico de formação, mas iniciei uma transição de carreira p
 
 ## Redes e contatos
 
-**e-mail**: alexsavio.ferreira@gmail.com
-**linkedin**: https://www.linkedin.com/in/alexsaviof
+- **e-mail**: alexsavio.ferreira@gmail.com
+- **linkedin**: https://www.linkedin.com/in/alexsaviof
 
 
 <!---
